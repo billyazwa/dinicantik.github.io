@@ -1,2 +1,2 @@
-# kado
+# dinicantik.github.io
 -
